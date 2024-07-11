@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KhoiVN209
+- 👀 I’m interested in Programming Code Battle
+- 🌱 I’m currently a student at Tran Dai Nghia High School For The Gifted
+- 💞️ I’m looking to collaborate on .........
+- 😄 Pronouns: Khoi
+- ⚡ Fun fact: .....
